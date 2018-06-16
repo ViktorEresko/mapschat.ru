@@ -1,0 +1,2 @@
+# mapschat.ru
+privace
